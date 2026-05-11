@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots instant Script offers the most advanced dig deeper for brainrots Script, with silent aim and one-hit kill. Perfect for
 
 
 
